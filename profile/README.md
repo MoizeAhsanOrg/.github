@@ -6,6 +6,8 @@ Feel free to explore. 🙂
 You can also reach me at moize.ahsan@hotmail.com
 
 Visit my main profile at: https://github.com/MoizeAhsan
+
+Look at the People section to find my various accounts! ->
 <!--
 
 **Here are some ideas to get you started:**
