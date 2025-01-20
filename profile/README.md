@@ -4,6 +4,8 @@ This organization is meant to gather all my GitHub accounts to one place for eas
 Feel free to explore. 🙂
 
 You can also reach me at moize.ahsan@hotmail.com
+
+Visit my main profile at: https://github.com/MoizeAhsan
 <!--
 
 **Here are some ideas to get you started:**
